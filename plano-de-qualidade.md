@@ -190,7 +190,7 @@ Acesso em: 2025
 
 ---
 
-**Autores:** Julio Da Silva, Ladilson, Herbert, José Arthur, Jussara e Kaio.
+**Autores:** Julio Da Silva, Ladilson, Herbert, José Arthur, Jussara e Kaio Thalisson.
 
 **Autor:** 
 **Matrícula:**
