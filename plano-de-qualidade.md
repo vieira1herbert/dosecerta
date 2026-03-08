@@ -190,20 +190,7 @@ Acesso em: 2025
 
 ---
 
-**Autor:** Julio Da Silva
-**Matrícula:** UC24102918
-
-**Autor:** Herbert Yan Vieira Pereira
-**Matrícula:** UC24101313
-
-**Autor:** 
-**Matrícula:**
-
-**Autor:** 
-**Matrícula:**
-
-**Autor:** 
-**Matrícula:**
+**Autores:** Julio Da Silva, Ladilson, Herbert, José Arthur, Jussara e Kaio.
 
 **Autor:** 
 **Matrícula:**
